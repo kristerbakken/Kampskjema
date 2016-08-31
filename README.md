@@ -1,2 +1,2 @@
-funker dette?
+dunker dette?
 
